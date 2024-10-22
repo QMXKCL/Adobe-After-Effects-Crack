@@ -1,6 +1,6 @@
 <h1 align="center">🟢Adobe After Effects Crack🟢</h1>
 <p align="center">
-  <img src="https://iforum-de.c.hihonor.com/uk_data/images/10000/2024/9/10/7ecaaa0e-a46d-4436-a430-d65d47defb72.png"  width="auto" height="auto">
+  <img src="https://anturis.com/wp-content/uploads/2024/02/Adobe-After-Effects-2024-Screenshot.png"  width="auto" height="auto">
 </p>
 <div id="badges" align="center">
   <img src="https://img.shields.io/badge/MIT-grey?logo=MIT&logoColor=white&style=for-the-badge" alt="MIT Badge"/>
